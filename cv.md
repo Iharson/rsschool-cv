@@ -5,4 +5,5 @@
 5. Code examples: none
 6. My site  [Udemy](http://iharson.ru/)
 7. Udemy courses: [Udemy](https://www.udemy.com/user/ihar-mashniakou/)
-7. 
+8. English level: Upper-Intermediate. Practice with foreign customers more than 10 years.
+
